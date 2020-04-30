@@ -5,3 +5,4 @@ Link zum Video:
 
 https://youtu.be/0gVOnurKa-w
 
+[](/Siegerehrung.png)
