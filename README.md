@@ -5,4 +5,4 @@ Link zum Video:
 
 https://youtu.be/0gVOnurKa-w
 
-[](/Siegerehrung.png)
+![](Hackthon%20Siegerehrung.png)
